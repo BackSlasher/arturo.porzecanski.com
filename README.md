@@ -1,1 +1,0 @@
-# arturo.porzecanski.com
